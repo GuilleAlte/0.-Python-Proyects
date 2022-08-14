@@ -20,4 +20,5 @@ You will find:
 ... and PNL is coming ;)
 
 
-You can find me on my Linkedin profile: (https://www.linkedin.com/in/guillermo-altesor/)
+
+Here is my Linkedin profile: (https://www.linkedin.com/in/guillermo-altesor/)
